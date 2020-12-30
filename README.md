@@ -1,2 +1,2 @@
 # living-room
-welcome to my woman cave
+Welcome to my hippocampus.
